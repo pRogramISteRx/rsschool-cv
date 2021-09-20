@@ -6,7 +6,7 @@ Vadim Kotkovets
 
 ## Contacts
 
-- Mobile number: +375 (29) 941-19-20
+- Mobile number: +375 (33) 639-12-61
 - E-mail: kotkowec@gmail.com
 - Skype: motolenec
 - Viber: +375 (33) 639-12-61
